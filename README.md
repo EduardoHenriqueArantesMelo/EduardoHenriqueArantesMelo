@@ -10,4 +10,3 @@ Meu Nome é Eduardo Henrique Arantes Melo
 
 não tenho
 
-![](https://media.tenor.com/UQ8ye5bWKVUAAAAM/big-smile-cuphead.gif)
