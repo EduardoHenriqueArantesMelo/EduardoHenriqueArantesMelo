@@ -8,5 +8,5 @@ Meu Nome é Eduardo Henrique Arantes Melo
 
 - ### Você pode entrar em contato comigo 📫
 
-não tenho
+00001108803702sp@al.educacao.sp.gov.br
 
